@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... PROGRAMAR
 - 🌱 I’m currently learning ... TODO
 - 💞️ I’m looking to collaborate on ... LO QUE CAIGA
-- 📫 How to reach me ... Instagarm : @elcheinformatico FB : @elcheinformatico
+- 📫 How to reach me ... Instagram : @elcheinformatico FB : @elcheinformatico
 - Gracias.
 
 <!---
